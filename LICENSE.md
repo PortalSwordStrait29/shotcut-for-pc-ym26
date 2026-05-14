@@ -1,4 +1,4 @@
-# 
+# Shotcut for PC | Shotcut for Windows exclusive Template: noise-reduction & collaboration-tools offers the most advanced Shotcut for PC | Shotcut for Windows template, with
 
 
 
